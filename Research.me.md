@@ -3,7 +3,7 @@
 This research is in addition to the SWOT research attached.
 
 - Who needs Branchless Bank: everyone, this bank will provide the services that the typical bank offers, with the difference that one can get these services from the comfort of their own home, office, hotel room or peak of a mountain {so long there is coverage}.
-- Why Branchless Bamk: because people are busy living hectic lives, or enjoying them. Branchless bank takes away the task of driving tot he bank to run errands and puts the services at your fingertips so you can go back to doing what you really want to.
+- Why Branchless Bank: because people are busy living hectic lives, or enjoying them. Branchless bank takes away the task of driving tot he bank to run errands and puts the services at your fingertips so you can go back to doing what you really want to.
 
 - Competition: Branchless bank offers services similar to Paypal, Simple, USAA and other banks and simplifies them. What sets us apart from the competition is the offer of a complee banking experience in the comfort of wherever life takes you -- no other company offers the simplicity and strategy that Branchless bank does for free. 
 
